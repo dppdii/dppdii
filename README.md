@@ -2,7 +2,7 @@
 - 👀 I’m interested in being more beautiful and losing fat.
 - 🌱 I’m currently learning how to work with others, how to express more efficiently. Cooking, philosophy and Français.
 - 💞️ I’m looking to collaborate on getting rich and being free.
-- 📫 How to reach me in ordering Peisen and Dimo losing fat pills. 
+- 📫 How to reach me in ordering Peisen and Dimo pills. 
 
 <!---
 dppdii/dppdii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
